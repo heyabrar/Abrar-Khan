@@ -7,11 +7,20 @@
 •  📍  Bangalore, India.
        
 **Get In Touch 📫**
+
 • LinkedIn: https://www.linkedin.com/in/abrar-khan-b67333230
 
 • Twitter: https://twitter.com/_iam_a_k
 
 • Email : heyabrarkhan@gamil.com
+
+**Personal ME**
+
+• Ronaldo 7️⃣
+
+• Selenophile ✨ + Orophile 🛤..
+
+• Travel 🏞, Bikes🏍, Cars🚘, Sports⚽.
 
 <!---
 heyabrar/heyabrar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
