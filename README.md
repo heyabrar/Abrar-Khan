@@ -16,11 +16,13 @@
 
 **Personal ME**
 
+• #Grinding.
+
 • Ronaldo 7️⃣
 
 • Selenophile ✨ + Orophile 🛤..
 
-• Travel 🏞, Bikes🏍, Cars🚘, Sports⚽.
+• Travel 🏞. Bikes🏍. Cars🚘. Sports⚽.
 
 <!---
 heyabrar/heyabrar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
