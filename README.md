@@ -1,10 +1,12 @@
-- 👋 Hey there, Myself Abrar Khan
-- 👀 I’m interested in Web Development.
-- 🌱 I’m currently learning Web Development @Masai
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me on..
-- LinkedIn @Abrar Khan
-- Twitter @_iam_a_k
+• 👋 Hey there!!!
+• 🌱 I’m currently learning Web Development with help from https://www.masaischool.com/.
+• 📑 Ask me about anything.
+• 📍  Bangalore, India.
+       
+**Get In Touch 📫**
+• LinkedIn: https://www.linkedin.com/in/abrar-khan-b67333230
+• Twitter: https://twitter.com/_iam_a_k
+• Email : heyabrarkhan@gamil.com
 
 <!---
 heyabrar/heyabrar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
