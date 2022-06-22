@@ -1,7 +1,7 @@
 • 👋 Hey there!!!
-• 🌱 I’m currently learning Web Development with help from https://www.masaischool.com/.
-• 📑 Ask me about anything.
-• 📍  Bangalore, India.
+ 🌱 I’m currently learning Web Development with help from https://www.masaischool.com/.
+  📑 Ask me about anything.
+  📍  Bangalore, India.
        
 **Get In Touch 📫**
 • LinkedIn: https://www.linkedin.com/in/abrar-khan-b67333230
