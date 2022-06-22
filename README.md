@@ -7,8 +7,10 @@
 •  📍  Bangalore, India.
        
 **Get In Touch 📫**
-• LinkedIn: https://www.linkedin.com/in/abrar-khan-b67333230.
-• Twitter: https://twitter.com/_iam_a_k.
+• LinkedIn: https://www.linkedin.com/in/abrar-khan-b67333230
+
+• Twitter: https://twitter.com/_iam_a_k
+
 • Email : heyabrarkhan@gamil.com
 
 <!---
