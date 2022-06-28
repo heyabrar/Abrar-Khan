@@ -5,6 +5,8 @@
 • 📑 Ask me about anything.
 
 •  📍  Bangalore, India.
+
+• I write what i feel here : https://medium.com/@heyabrarkhan
        
 **Get In Touch 📫**
 
