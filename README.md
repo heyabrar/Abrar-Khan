@@ -6,7 +6,7 @@
 
 •  📍  Bangalore, India.
 
-• I write what i feel here : https://medium.com/@heyabrarkhan
+•  I write what i feel here : https://medium.com/@heyabrarkhan
        
 **Get In Touch 📫**
 
@@ -16,7 +16,7 @@
 
 • Email : heyabrarkhan@gamil.com
 
-**Personal ME**
+**Personal Me**
 
 • #Grinding.
 
