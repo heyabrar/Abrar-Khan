@@ -4,8 +4,6 @@
 
 • 📑 Ask me about anything.
 
-•  I write what I feel here : https://medium.com/@heyabrarkhan
-
 •  📍  Bangalore, India.
 
        
@@ -16,6 +14,8 @@
 • Twitter: https://twitter.com/_iam_a_k
 
 • Email : heyabrarkhan@gamil.com
+
+• I write what I feel here : https://medium.com/@heyabrarkhan
 
 **Personal Me**
 
