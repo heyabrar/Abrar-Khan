@@ -4,9 +4,10 @@
 
 • 📑 Ask me about anything.
 
+•  I write what I feel here : https://medium.com/@heyabrarkhan
+
 •  📍  Bangalore, India.
 
-•  I write what i feel here : https://medium.com/@heyabrarkhan
        
 **Get In Touch 📫**
 
